@@ -15,5 +15,4 @@
 
 <div align="left">
 <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/bd09641b-9c23-4fc9-8870-c1d3076ef005" />
-  <div align="right">
-<img width="447" height="447" alt="image" src="https://github.com/user-attachments/assets/3d9127f9-3402-49a3-806c-6c8e923049f5" />
+<img width="300" height="280" alt="image" src="https://github.com/user-attachments/assets/3d9127f9-3402-49a3-806c-6c8e923049f5" />
