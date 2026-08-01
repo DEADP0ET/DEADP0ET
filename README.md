@@ -6,6 +6,8 @@
   
 <img width="692" height="388" alt="image" src="https://github.com/user-attachments/assets/282f71a1-532c-432a-878d-efef8af9224d" />
 <div align="center">
+
+°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･
   
 [Sign my atabook! :3](https://az1ra.atabook.org)
 
