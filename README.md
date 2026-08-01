@@ -9,4 +9,4 @@
   
 [Sign my atabook! :3](https://az1ra.atabook.org)
 
-*Hellooo Noli my skrunkly haiii my other half that means the world to me !!*
+*Hellooo [Noli](https://github.com/abookslines) my skrunkly haiii my other half that means the world to me !!* 
