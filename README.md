@@ -11,6 +11,16 @@
   
 [Sign my atabook! :3](https://az1ra.atabook.org) 
 
+Thank you so much!! <br>
+   pretty ponies [@ponychievements](https://github.com/ponychievements) <br>
+   c+hers / cuddly [@pt-nominations](https://github.com/pt-nominations) , [@ponychievements](https://github.com/ponychievements) <br>
+   pt’s Shigeo Kageyama / Mob [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) <br>
+   pt’s Dean Winchester [@ponytown-nominations](https://github.com/ponytown-nominations) , [@pt-medals](https://github.com/pt-medals) <br>
+   pt’s Yuji Itadori [@pt-of-awesomeness](https://github.com/pt-of-awesomeness) , [@pt-fashion](https://github.com/pt-fashion) , [@pt-hall-of-media](https://github.com/pt-hall-of-media) <br>
+   Gojo Satoru’s biggest fan LOLL [@fans-town](https://github.com/fans-town) <br>
+   pt’s 007n7 [@pt-nominations](https://github.com/pt-nominations) 
+  
+
 *Hellooo [Noli](https://github.com/abookslines) my skrunkly haiii my other half that means the world to me !!* 
 
 <div align="left">
