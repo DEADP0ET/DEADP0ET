@@ -11,7 +11,7 @@
 
 <div align="center">
 
-°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･
+**°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･**
 
 Thank you so much!! <br>
    pretty ponies [@ponychievements](https://github.com/ponychievements) <br>
@@ -22,7 +22,7 @@ Thank you so much!! <br>
    Gojo Satoru’s biggest fan LOLL [@fans-town](https://github.com/fans-town) <br>
    pt’s 007n7 [@pt-nominations](https://github.com/pt-nominations) 
 
-• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •
+**• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •**
 
 *Hellooo [Noli](https://github.com/abookslines) my skrunkly haiii my other half that means the world to me !!* 
 
