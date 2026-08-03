@@ -19,7 +19,8 @@ Thank you so much!! <br>
    pt’s Yuji Itadori [@pt-of-awesomeness](https://github.com/pt-of-awesomeness) , [@pt-fashion](https://github.com/pt-fashion) , [@pt-hall-of-media](https://github.com/pt-hall-of-media) <br>
    Gojo Satoru’s biggest fan LOLL [@fans-town](https://github.com/fans-town) <br>
    pt’s 007n7 [@pt-nominations](https://github.com/pt-nominations) 
-  
+
+• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •
 
 *Hellooo [Noli](https://github.com/abookslines) my skrunkly haiii my other half that means the world to me !!* 
 
