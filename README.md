@@ -13,7 +13,7 @@
 
 **°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･**
 
-Thank you so much!! <br>
+*Thank you so much!!* <br>
    pretty ponies [@ponychievements](https://github.com/ponychievements) <br>
    c+hers / cuddly [@pt-nominations](https://github.com/pt-nominations) , [@ponychievements](https://github.com/ponychievements) <br>
    pt’s Shigeo Kageyama / Mob [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) <br>
