@@ -3,7 +3,8 @@
 
 ୨ৎ <br> **Azira** , Shigeo , Sou <br> 20 , chaotic ENFP-T
 ⋆˚꩜｡
-[Sign my atabook! :3](https://az1ra.atabook.org) 
+[Sign my atabook! :3](https://az1ra.atabook.org) <br>
+*Current fixations ; JJK , DHMIS , Forsaken , SPN , PHM , MP100 , GI*
 
 <div align="center">
   
