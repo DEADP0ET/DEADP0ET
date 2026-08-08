@@ -4,7 +4,7 @@
 ୨ৎ <br> **Azira** , Shigeo , Sou <br> 20 , dni -15 , chaotic ENFP-T
 ⋆˚꩜｡
 [Sign my atabook! :3](https://az1ra.atabook.org) <br>
-*Current fixations ; JJK , DHMIS , Forsaken , SPN , PHM , MP100 , GI*
+*Current fixations ; JJK , DHMIS , Forsaken , SPN , PHM , MCU , MP100 , GI*
 
 <div align="center">
   
@@ -13,6 +13,9 @@
 <div align="center">
 
 **°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･**
+
+*Other interests; tsp, bnha, yttd, arcane, death note, until dawn, dbh, good omens, + more* <br>
+୨ৎ <br>
 
 *Thank you so much!!* <br>
    pretty ponies [@ponychievements](https://github.com/ponychievements) <br>
